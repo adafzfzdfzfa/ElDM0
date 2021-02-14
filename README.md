@@ -3,7 +3,8 @@
 
 👁️ About me
 
-›🔧 Working on Assembly projects & Some tools
+›🔧 Working on Legion Project & Obsuria-PvP
+
 ›📍 How to reach me: "El DM0-" ☬#0213 (On discord)
 ─────────────────────────────────────
 
