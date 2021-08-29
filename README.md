@@ -4,9 +4,9 @@
 
 👁️ About me
 
-›🔧 Working on Legion Project & Obsuria-PvP
+›🔧 Working on Legion Project
 
-›📍 How to reach me: "El DM0-" ☬#0213 (On discord)
+›📍 How to reach me: DM0#0213 (On discord)
 
 ─────────────────────────────────────
 
