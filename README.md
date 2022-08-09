@@ -4,7 +4,7 @@
 
 👁️ About me
 
-›🔧 Working on Legion Project
+›🔧 Working on Legion X (Project)
 
 ›📍 How to reach me: DM0#0213 (On discord)
 
@@ -15,5 +15,6 @@
 ⋄ Python
 ⋄ JavaScript
 ⋄ Java
+⋄ HTML / PHP
 
 ─────────────────────────────────────
